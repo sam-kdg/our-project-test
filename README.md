@@ -3,13 +3,6 @@ Hello world
 
 Hello Europe
 
-fsdfs
-d
-sdfsdf
-
 Hello there! xx Dalvin
 
-sdfasd
-a
-
-asdasd
+Seg wa is dees nu weer? Kzal het is opruimen eh! 
